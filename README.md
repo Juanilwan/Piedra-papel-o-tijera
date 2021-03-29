@@ -1,1 +1,0 @@
-# Piedra-papel-o-tijera
